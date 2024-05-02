@@ -1,1 +1,1 @@
-# madjelly.xyz
+# mcc.xyz
